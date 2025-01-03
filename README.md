@@ -1,3 +1,3 @@
 # Amazon.com
 <br>
-Author - Ayush Kumar
+THE-AYUSH-CODER
